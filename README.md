@@ -1,2 +1,1 @@
-Ilham Arifman (1308107010015)
-Bagus Arief Maulana (1308107010031)
+Irfan Agoes Mursalin (1308107010007)
